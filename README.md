@@ -6,6 +6,6 @@
 - me
 - 😄 Pronouns: he
 - ⚡ Fun fact: I specialize in chemicals, so, this is way out of my comfort zone at my age. i love chess!
-
+- - REALLY JUST TRYING TO LEARN linux, jabber, anything new for fun
 <!---
 jwinfield1973/jwinfield1973
